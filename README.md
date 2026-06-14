@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Cyber ROhan
+# 💫 Hi 👋, I'm Cyber Rohan
 **A passionate security engineer || cyberseurity ananlyst || Kafka Admin from India**
 
 Email Me 👉 ✉️ **rohantheediter@gmail.com** For Collaboration/Project or Anything Else. 😊😊
